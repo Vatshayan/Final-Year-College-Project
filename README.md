@@ -22,7 +22,7 @@ Hi Viewer,
 
 ## CONTACT
 
-### Mail me Now at **vatshayan007@gmail.com** for Full Project Code, PPt, IEEE Research paper, Project Report and Synopsis on this Project. 
+### Mail me Now at **vatshayan007@gmail.com** for Full Project Code, PPT, IEEE Research paper, Project Report and Synopsis on this Project. 
 
 You can use this Project for your University and College Project Submission just Edit Name and College name Send it your Mentor and Guide for Good marks.
 
@@ -34,3 +34,4 @@ Lets Learn, Grow and Work Together.
 
 Ask freely :-)
 
+#### I Reply Mails in Minutes any help, queries or discusion. Mail me Now at vatshayan009@gmail.com   
