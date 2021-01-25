@@ -26,7 +26,7 @@ Hi Viewer,
 
 You can use this Project for your University and College Project Submission just Edit Name and College name Send it your Mentor and Guide for Good marks.
 
-If you are not able to Understand then I will explain you as I have also Description Audio and Audio recording of this Project.
+If you are not able to Understand then I will explain you as I have also Description Audio and Video recording of this Project.
 
 Happy to Help you!
 
