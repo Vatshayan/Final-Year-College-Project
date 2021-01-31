@@ -28,6 +28,9 @@ You can use this Project for your University and College Project Submission just
 
 If you are not able to Understand then I will explain you as I have also Description Audio and Video recording of this Project.
 
+### BLOG 
+Read this Blog on - **https://college-projects-help.blogspot.com/2021/01/cryptographic-technique-for.html**
+
 Happy to Help you!
 
 Lets Learn, Grow and Work Together.
