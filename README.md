@@ -37,9 +37,6 @@ Email me Now **vatshayan007@gmail.com** to get this Project Code, PPT, Report, S
 
 💬 Gmail: **vatshayan007@gmail.com**
 
-### BLOG 
-Read this Blog on - **https://college-projects-help.blogspot.com/2021/01/cryptographic-technique-for.html**
-
 Happy to Help you!
 
 Lets Learn, Grow and Work Together.
